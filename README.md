@@ -8,7 +8,7 @@ adhd, heavily affects my relationships and such, please be patient with me.
 
 cuddling is heavily encouraged! do ask incase im with someone.
 
-whisper to interact all times, i am mostly offtab/not paying attention or speaking in party chat
+whisper to interact all times, i am mostly offtab/not paying attention or have chats off
 
 i love my boyfriend and friends soso much ♡
 
