@@ -2,7 +2,7 @@ still working on this, come back later!
 
 no dni besides the obvious, just be respectful and decent.
 
-call me andrew, nirra or click
+call me andrew, nirra or click . it/he unlabeled
 
 adhd, heavily affects my relationships and such, please be patient with me.
 
