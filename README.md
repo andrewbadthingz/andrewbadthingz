@@ -2,7 +2,7 @@ still working on this, come back later!
 
 no dni besides the obvious, just be respectful and decent.
 
-im 16, despite not having a dni id personally prefer not to int with people older than 20 and younger than 15 unless regi stuff
+im 16, despite not having a dni id personally prefer not to int with people -15/+20 unless regi stuff
 
 call me andrew, nirra or click . it/he unlabeled
 
