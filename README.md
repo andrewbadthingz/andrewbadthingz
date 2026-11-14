@@ -4,5 +4,11 @@ no dni besides the obvious, just be respectful and decent.
 
 call me andrew, nirra or click
 
+adhd, heavily affects my relationships and such, please be patient with me.
+
+cuddling is heavily encouraged! do ask incase im with someone.
+
+whisper to interact all times, i am mostly offtab/not paying attention or speaking in party chat
+
 i love my boyfriend and friends soso much ♡
 
