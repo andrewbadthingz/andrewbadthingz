@@ -4,7 +4,7 @@ no dni besides the obvious, just be respectful and decent.
 
 i'm 16, and i prefer to not befriend anyone whos -14 or +20. 
 
-call me andrew, nirra or click . it/he unlabeled
+call me andrew, nirra or click . it/he unlabeled , pt-br/eng
 
 adhd, heavily affects my relationships and such, please be patient with me.
 
